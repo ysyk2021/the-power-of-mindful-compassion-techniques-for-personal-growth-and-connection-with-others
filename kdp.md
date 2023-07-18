@@ -10,7 +10,6 @@ In this book, we'll explore the power of mindful compassion and how it can trans
 
 Whether you're new to mindfulness and compassion or a seasoned practitioner, this book offers valuable insights and techniques for cultivating greater awareness, empathy, and connection in all aspects of your life. So, are you ready to unlock the power of mindful compassion and experience deeper personal growth and connection with others? Let's dive in and explore The Power of Mindful Compassion together.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
