@@ -1,4 +1,4 @@
-Chapter 8: Common Barriers to Practicing Mindful Compassion
+Common Barriers to Practicing Mindful Compassion
 ===========================================================
 
 In this chapter, we will explore common barriers that can hinder the practice of mindful compassion. By recognizing and understanding these obstacles, you can develop strategies to overcome them and create a more sustainable and fulfilling practice.

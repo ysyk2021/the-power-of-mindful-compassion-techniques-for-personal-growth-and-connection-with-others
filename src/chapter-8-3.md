@@ -1,4 +1,4 @@
-Chapter 4: Techniques for Incorporating Mindful Compassion into Work and Daily Routines
+Techniques for Incorporating Mindful Compassion into Work and Daily Routines
 =======================================================================================
 
 In this chapter, we will explore practical techniques for integrating mindful compassion into our work and daily routines. By cultivating a compassionate mindset and incorporating mindfulness in our everyday activities, we can enhance our well-being, develop stronger connections with others, and bring positive change to our work environments.

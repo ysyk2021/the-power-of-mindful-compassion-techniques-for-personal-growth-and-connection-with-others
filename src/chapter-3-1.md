@@ -1,4 +1,4 @@
-Chapter 2: Techniques for Cultivating Mindfulness
+Techniques for Cultivating Mindfulness
 =================================================
 
 Mindfulness is the foundation upon which mindful compassion is built. It is the practice of cultivating present-moment awareness and non-judgmental attention to our thoughts, feelings, and surroundings. In this chapter, we will explore various techniques that can help us develop and strengthen mindfulness in our daily lives.

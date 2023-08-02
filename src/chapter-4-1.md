@@ -1,4 +1,4 @@
-Chapter 6: Mindfulness-Based Techniques for Developing Compassion Towards Self and Others
+Mindfulness-Based Techniques for Developing Compassion Towards Self and Others
 =========================================================================================
 
 In this chapter, we will explore mindfulness-based techniques that can be used to develop compassion towards oneself and others. By incorporating these practices into your daily life, you can cultivate a deeper sense of connection, empathy, and personal growth.

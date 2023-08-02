@@ -1,4 +1,4 @@
-Chapter 5: Strategies to Overcome These Barriers
+Strategies to Overcome These Barriers
 ================================================
 
 In this chapter, we will explore effective strategies to overcome the barriers that may hinder your practice of mindful compassion. By implementing these techniques, you can enhance your personal growth and cultivate deeper connections with others.

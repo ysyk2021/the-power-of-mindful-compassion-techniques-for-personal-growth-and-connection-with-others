@@ -1,4 +1,4 @@
-Chapter 5: Letting Go of Resentment and Negative Emotions through Mindful Compassion
+Letting Go of Resentment and Negative Emotions through Mindful Compassion
 ====================================================================================
 
 In this chapter, we will explore the power of mindful compassion in helping us let go of resentment and negative emotions. Resentment and negative emotions can weigh us down, hinder personal growth, and strain our connections with others. However, by cultivating mindful compassion, we can find healing, inner peace, and foster healthier relationships.

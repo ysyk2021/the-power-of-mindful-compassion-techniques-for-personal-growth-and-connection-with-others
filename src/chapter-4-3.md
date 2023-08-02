@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Cultivating a Regular Mindful Compassion Practice
+Strategies for Cultivating a Regular Mindful Compassion Practice
 ===========================================================================
 
 In this chapter, we will explore effective strategies that can help you cultivate and maintain a regular mindful compassion practice. These strategies will support you in developing a consistent routine that nurtures your personal growth and strengthens your connections with others.

@@ -1,4 +1,4 @@
-Chapter 5: Benefits of Mindful Compassion for Reducing Conflict and Promoting Cooperation
+Benefits of Mindful Compassion for Reducing Conflict and Promoting Cooperation
 =========================================================================================
 
 In this chapter, we will explore the profound benefits of practicing mindful compassion in reducing conflict and fostering cooperation. By cultivating mindful awareness and compassionate attitudes, we can transform challenging situations, enhance relationships, and create a harmonious and cooperative environment.

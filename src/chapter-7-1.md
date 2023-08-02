@@ -1,4 +1,4 @@
-Chapter 4: Using Mindful Compassion to Manage Stress and Anxiety
+Using Mindful Compassion to Manage Stress and Anxiety
 ================================================================
 
 In this chapter, we will explore how the practice of mindful compassion can effectively help in managing stress and anxiety. By combining mindfulness and compassion, we can cultivate powerful tools that allow us to navigate challenging moments with greater ease and resilience.

@@ -1,4 +1,4 @@
-Chapter 5: Strategies for Incorporating Mindfulness into Daily Life
+Strategies for Incorporating Mindfulness into Daily Life
 ===================================================================
 
 In this chapter, we will explore practical strategies for incorporating mindfulness into our daily routines. By integrating mindfulness into our lives, we can cultivate a greater sense of presence, peace, and well-being.

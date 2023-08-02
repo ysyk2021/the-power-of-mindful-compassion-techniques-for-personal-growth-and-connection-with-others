@@ -1,4 +1,4 @@
-Chapter 7: Using Mindful Compassion to Improve Relationships with Others
+Using Mindful Compassion to Improve Relationships with Others
 ========================================================================
 
 In this chapter, we will explore how the practice of mindful compassion can profoundly enhance our relationships with others. By cultivating a compassionate mindset and utilizing mindfulness techniques, we can foster deeper connections, promote understanding, and navigate conflicts with grace and empathy.
