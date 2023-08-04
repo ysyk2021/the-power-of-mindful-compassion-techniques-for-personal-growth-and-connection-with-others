@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-  - [Overview of the book](chapter-1-1.md)
   - [Importance of mindful compassion for personal growth and connection with others](chapter-1-2.md)
 - [Chapter 1: Understanding Mindful Compassion](chapter-2.md)
   - [Definition and benefits of mindful compassion](chapter-2-1.md)
