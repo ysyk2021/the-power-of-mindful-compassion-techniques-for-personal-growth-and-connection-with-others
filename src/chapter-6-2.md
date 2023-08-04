@@ -3,7 +3,7 @@ Strategies to Overcome These Barriers
 
 In this chapter, we will explore effective strategies to overcome the barriers that may hinder your practice of mindful compassion. By implementing these techniques, you can enhance your personal growth and cultivate deeper connections with others.
 
-1. Cultivating Self-Compassion
+1\. Cultivating Self-Compassion
 ------------------------------
 
 Self-compassion forms the foundation for mindful compassion towards others. To overcome barriers, it is essential to develop a kind and non-judgmental attitude towards oneself. Here are some strategies to cultivate self-compassion:
@@ -13,7 +13,7 @@ Self-compassion forms the foundation for mindful compassion towards others. To o
 * **Positive Self-Talk:** Challenge negative self-talk and replace it with affirming and supportive statements. Treat yourself with the same kindness and understanding you would offer a close friend.
 * **Self-Forgiveness:** Let go of self-blame and forgive yourself for past mistakes or shortcomings. Understand that imperfections are part of being human.
 
-2. Developing Empathy for Others
+2\. Developing Empathy for Others
 --------------------------------
 
 Empathy enables us to connect with others on a deeper level and respond to their needs with compassion. Here are strategies to develop empathy:
@@ -23,7 +23,7 @@ Empathy enables us to connect with others on a deeper level and respond to their
 * **Cultivate Curiosity:** Be genuinely interested in others' experiences and stories. Ask open-ended questions that encourage them to share more about themselves.
 * **Practice Non-Judgment:** Suspend judgment and cultivate an open-minded attitude towards others. Recognize that everyone has their own unique journey and struggles.
 
-3. Overcoming Barriers to Compassion
+3\. Overcoming Barriers to Compassion
 ------------------------------------
 
 Certain barriers may impede our ability to practice mindful compassion. Here are strategies to overcome them:
