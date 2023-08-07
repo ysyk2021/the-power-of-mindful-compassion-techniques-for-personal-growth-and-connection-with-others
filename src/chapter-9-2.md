@@ -1,4 +1,4 @@
-Developing empathy and compassion towards others
+Developing Empathy And Compassion Towards Others
 ====================================================================================================
 
 In this chapter, we will explore the importance of developing empathy and compassion towards others in cultivating compassionate relationships. We will look at techniques for developing empathy and compassion, the benefits of these practices, and strategies for incorporating them into our daily lives.

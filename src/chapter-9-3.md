@@ -1,4 +1,4 @@
-Healing and repairing relationships through mindful compassion
+Healing And Repairing Relationships Through Mindful Compassion
 ==================================================================================================================
 
 In this chapter, we will explore how mindful compassion can help heal and repair damaged relationships. We will look at techniques for cultivating empathy and compassion towards ourselves and others, the benefits of these practices, and strategies for applying mindful compassion in relationships that need healing.
