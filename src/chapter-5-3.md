@@ -1,4 +1,3 @@
-# Letting Go of Resentment and Negative Emotions through Mindful Compassion
 
 In this chapter, we will explore how the practice of mindful compassion can help us let go of resentment and negative emotions. Resentment and negative emotions can weigh heavily on our hearts and hinder personal growth and connection with others. By cultivating mindful compassion, we can develop the ability to acknowledge, understand, and release these emotions, freeing ourselves from their grip and creating space for healing and transformation.
 

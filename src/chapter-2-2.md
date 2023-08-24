@@ -1,5 +1,3 @@
-Relationship between Mindfulness, Compassion, and Personal Growth
-============================================================================
 
 In this chapter, we will explore the intricate relationship between mindfulness, compassion, and personal growth. Understanding how these three components intertwine and influence each other is key to unlocking their transformative power in our journey towards self-improvement and deepening connection with others.
 

@@ -1,5 +1,3 @@
-Chapter 6: Mindful Self-Care
-============================
 
 In this chapter, we will explore the concept of mindful self-care and its benefits for mental and physical health. We will look at how to use mindful compassion to manage stress and anxiety, the benefits of mindful self-care for well-being, and how to build resilience and self-compassion through mindful self-care.
 

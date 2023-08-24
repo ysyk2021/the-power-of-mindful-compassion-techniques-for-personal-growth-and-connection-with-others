@@ -1,5 +1,3 @@
-Sustaining a Regular Mindful Compassion Practice
-===========================================================
 
 In this chapter, we will explore strategies for sustaining a regular mindful compassion practice. Consistency is key when it comes to cultivating compassion and reaping its benefits. By incorporating these techniques into your routine, you can maintain a steady and nourishing practice of mindful compassion.
 

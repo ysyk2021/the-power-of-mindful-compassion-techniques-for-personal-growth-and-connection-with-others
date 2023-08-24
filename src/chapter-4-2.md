@@ -1,5 +1,3 @@
-Loving-Kindness Meditation
-======================================================================================
 
 In this chapter, we will explore the practice of loving-kindness meditation as a technique for cultivating mindful compassion. We will look at the benefits of loving-kindness meditation, how to practice it, and strategies for incorporating it into our daily lives.
 

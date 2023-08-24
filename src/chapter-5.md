@@ -1,5 +1,3 @@
-Chapter 4: Applying Mindful Compassion in Daily Life
-====================================================
 
 In this chapter, we will explore how to apply mindful compassion in our daily lives. We will look at techniques for improving relationships with others, the benefits of mindful compassion for reducing conflict and promoting cooperation, and letting go of resentment and negative emotions through mindful compassion.
 

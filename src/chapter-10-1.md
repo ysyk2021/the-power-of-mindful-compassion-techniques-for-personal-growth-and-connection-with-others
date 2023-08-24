@@ -1,5 +1,3 @@
-Reflection On The Power Of Mindful Compassion
-====================================================================
 
 In this book, we have explored the power of mindful compassion for personal growth and connection with others. We have looked at techniques for cultivating mindful compassion, strategies for overcoming obstacles to practicing regularly, and ways to apply mindful compassion in our daily lives.
 

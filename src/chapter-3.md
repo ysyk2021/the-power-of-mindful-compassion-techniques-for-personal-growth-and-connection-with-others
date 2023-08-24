@@ -1,5 +1,3 @@
-Chapter 2: Introduction to Mindfulness
-======================================
 
 In this chapter, we will explore the concept of mindfulness and its benefits for personal growth and connection with others. We will look at techniques for cultivating mindfulness, mindful breathing and body scan exercises, and strategies for incorporating mindfulness into daily life.
 

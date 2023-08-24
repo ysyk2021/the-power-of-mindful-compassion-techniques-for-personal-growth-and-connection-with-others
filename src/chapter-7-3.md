@@ -1,5 +1,3 @@
-Building Resilience and Self-Compassion through Mindful Self-Care
-============================================================================
 
 In this chapter, we will explore how practicing mindful self-care can help build resilience and cultivate self-compassion. By incorporating these techniques into our lives, we can enhance our ability to navigate challenges, bounce back from adversity, and develop a kind and understanding relationship with ourselves.
 

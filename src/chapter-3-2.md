@@ -1,5 +1,3 @@
-Mindful Breathing and Body Scan Exercises
-====================================================
 
 In this chapter, we will explore two fundamental mindfulness practices: mindful breathing and body scan exercises. These techniques will help you cultivate a deeper sense of awareness, relaxation, and connection with your body and breath.
 

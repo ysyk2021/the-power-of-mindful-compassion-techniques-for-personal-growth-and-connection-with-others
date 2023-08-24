@@ -1,5 +1,3 @@
-Benefits of Mindful Self-Care for Mental and Physical Health
-=======================================================================
 
 In this chapter, we will explore the profound benefits of practicing mindful self-care for enhancing mental and physical health. By incorporating mindful self-care techniques into our daily lives, we can cultivate well-being, reduce stress, and promote a balanced and fulfilling lifestyle.
 

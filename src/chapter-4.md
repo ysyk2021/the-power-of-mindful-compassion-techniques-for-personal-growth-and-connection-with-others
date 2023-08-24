@@ -1,5 +1,3 @@
-Chapter 3: Techniques and Exercises for Mindful Compassion
-==========================================================
 
 In this chapter, we will explore various techniques and exercises for cultivating mindful compassion. We will look at mindfulness-based techniques for developing compassion towards self and others, loving-kindness meditation, and strategies for cultivating a regular mindful compassion practice.
 

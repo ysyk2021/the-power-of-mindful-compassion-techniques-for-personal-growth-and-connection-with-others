@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to "The Power of Mindful Compassion: Techniques for Personal Growth and Connection with Others". In this book, we will explore the concept of mindful compassion and its benefits for personal growth and connection with others. We will look at techniques for cultivating mindfulness, practicing self-compassion, and promoting greater empathy and connection with those around us.
 

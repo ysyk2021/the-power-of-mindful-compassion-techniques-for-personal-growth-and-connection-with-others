@@ -1,5 +1,3 @@
-Overview of the Book
-===============================
 
 Welcome to "The Power of Mindful Compassion: Techniques for Personal Growth and Connection with Others." In this book, we will explore the transformative power of mindful compassion and how it can enrich our lives and relationships.
 

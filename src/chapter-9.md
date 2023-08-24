@@ -1,5 +1,3 @@
-Chapter 8: Cultivating Compassionate Relationships
-==================================================
 
 In this chapter, we will explore how the practice of mindful compassion can enhance our relationships with others. We will look at techniques for nurturing healthy relationships through mindful communication, developing empathy and compassion towards others, and healing and repairing relationships through mindful compassion.
 

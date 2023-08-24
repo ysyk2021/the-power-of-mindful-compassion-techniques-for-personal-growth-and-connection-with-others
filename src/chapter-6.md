@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Obstacles to Mindful Compassion
-=====================================================
 
 In this chapter, we will explore common barriers to practicing mindful compassion and strategies for overcoming these obstacles. We will also discuss how to sustain a regular mindful compassion practice.
 
